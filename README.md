@@ -1,2 +1,4 @@
 # hello-world
 Environmental II Homework 1
+
+This is a very ambitious but also a very cool first assignment. I am looking forward to the skills that I will learn in this course. I am a third year Economics doctoral student. I also work full-time teaching at my alma mater. That's cool to me too. I am also ambitious and am crafting an independent minor for my PhD in Global Health. I think that the Environmental II class will not only give me many new ideas, but help me to get them off the ground and progress me towards graduation. This semester, I am also taking a VIP course on sustainabilty in Africa and a French course called Francophone Africa. What's funny is that I've never taken a French class in my life and it's a 6000-level course. So it's important to be organized and prepared each week. 
